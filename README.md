@@ -1,7 +1,3 @@
-link to AI:
-
-[Link to AI](https://chatgpt.com/c/66e8eed8-77d4-8006-b343-9efa2f1b3acc)
-
 
 ### Title: "Daniel: Faith in the Lion's Den"
 
